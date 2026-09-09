@@ -12,7 +12,7 @@ I admire Ramo because I really adrimred the **plot twists** in the movies he act
 * Amesegnalehu - Daniel Amdemichael
 * Aygermem Woy - Daniel Amdemichael
 
-![Click here to read about my favorite city](MyCity.md)
+[Click here to read about my favorite city](MyCity.md)
 
 
 
