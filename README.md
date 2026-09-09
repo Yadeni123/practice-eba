@@ -6,3 +6,8 @@ I admire Ramo because I really adrimred the **plot twists** in the movies he act
 1. *Ramo*
 2. *Esref Ruya*
 3. *Guller Ve Gunahlar*
+
+### Songs I like
+* Yesew Eje Yelelebe - Daniel Amdemichael
+* Amesegnalehu - Daniel Amdemichael
+* Aygermem Woy - Daniel Amdemichael
